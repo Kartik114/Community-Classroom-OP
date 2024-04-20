@@ -7,7 +7,3 @@ hey there kp here.
 xyz made chaneg
 
 
-kudsadndd
-d
-sad
-
